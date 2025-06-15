@@ -1,0 +1,1 @@
+There are 7 flights per week flying from Bengaluru to Phuket. As of May 2025, there are around 152 flights daily from Bangalore to Phuket. The cheapest month to fly from Bengaluru to Phuket is usually February 2025.
